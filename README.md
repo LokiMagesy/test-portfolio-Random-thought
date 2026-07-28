@@ -2,10 +2,13 @@
 
 ### Test
 
-Hoi Lun Cheng
+### My First CV from school day
+
+### Hoi Lun (Simon) Cheng
 5630, rue Aline 
 Brossard (Québec)  J4Z 1R2 
-Telephone fixe : 438-228-9850     Telepghone mobile : 1-154-576-1398 
+Telephone fixe : 438-228-9850 (Qui utilise encore un téléphone fixe ?)
+Telepghone mobile : 1-154-576-1398 
 Courriel : hoiluncheng@hotmail.com
 
 Compétences
@@ -14,23 +17,97 @@ Compétences
 ⦁	Logicie : Word, Power Point, Google Doc
 ⦁	Formation : École Entreprise Prince-Dvly (Secondaire)
 
-EXPÉRIENCES DE TRAVAIL 
+## EXPÉRIENCES DE TRAVAIL 
 
-2009-2013 	Plongeur 
-		Restaurant buffet chinoise le Phare, plessisville 			(Québec)
-	• Effectuer la tâche générale : Nettoyage de fermature, Préparation de nourriture (aide cuisiner) 
+### Work
 
+I was sixteen when work became routine instead of obligation. Before then, I had always been helping my parents. After that, the hours simply became longer.
 
-2010-2011	Fabriqueur de pièce et Soudeur
-	Industrie Brassard, plessisville (Québec)
-	• Effectuer la tâche générale : Nettoyer l'endroit, 	assistant, machinerie , painture, 
+The restaurant never really closed. There was always another plate to wash. Another tray to refill. Another floor to clean before the lights went out.
 
-2011-2012	Assistant et Assembleur 
-	ConvertexInc, princeville (Québec)
-	• Fabrication des toit de bateau
+My father worked in the kitchen. I followed where he needed me.
 
+The sink became my station. Steam. Grease. Endless dishes. It was simple work, but it never stopped.
 
-Activités bénévoles
+Sometimes I left the sink to refill the buffet before customers noticed the empty spaces. Fresh plates replaced old ones. New food replaced what had disappeared.
 
-2008	Cuisiner dans un maison d'enfant handicappé, 
-	École J.-P.-H.-Massicotte, Victoriaville (Québec)
+Other times I helped my father. Wonton soup. Noodles. Whatever could be finished before the next rush. The fryer hissed all day. Oil stained my clothes long after I returned home.
+
+Dishwashing was still my real job. Everything else happened between loads.
+
+2009–2013
+Le Phare Chinese Buffet Restaurant, Plessisville, Québec
+Dishwasher. Kitchen assistant. Closing cleanup. Buffet preparation.
+
+### The Internship
+
+I thought one mistake would disappear if I worked harder.
+
+It didn't.
+
+One mistake became another. Then another. None of them were catastrophic. Most were small enough to forget. I never did.
+
+The shop was patient with me. My supervisor was patient with me.
+
+I wasn't patient with myself.
+
+Embarrassment grew heavier than the steel I carried. Eventually I left before anyone asked me to.
+
+Looking back, I remember kindness more than failure.
+
+The machines cut metal with certainty. Welding filled the room with white light. Every rough edge needed grinding until it became smooth enough to pass inspection.
+
+I swept the floors. Assisted where I could. Learned by watching people who already knew what they were doing.
+
+2010–2011
+Industrie Brassard, Plessisville, Québec
+Metal fabrication intern. Welding assistance. Machine operation. Painting. Shop maintenance.
+
+### A Second Beginning
+
+Changing internships felt like admitting defeat.
+
+Instead, it became relief.
+
+The work repeated itself day after day. Parts fit together the same way every time. Boat roofs became complete one piece at a time.
+
+There was less pressure.
+
+People talked while they worked.
+
+It was easier to breathe.
+
+The rhythm of assembly replaced the uncertainty I had carried from the previous workshop.
+
+Sometimes a simpler job teaches more than a difficult one.
+
+2011–2012
+Convertex Inc., Princeville, Québec
+Assembly assistant. Boat roof manufacturing and component assembly.
+
+## Activités bénévoles
+
+### One Day of Volunteering
+
+Memory lasts longer than paperwork.
+
+Years later, I realized I had no certificate. No record. No proof that I had volunteered as a student.
+
+Only the memory remained.
+
+It lasted a single day.
+
+Meals were prepared.
+
+Desserts were served.
+
+People needed help, so I helped.
+
+Nothing more.
+
+Nothing less.
+
+2008
+Home for Children with Disabilities
+École J.-P.-H.-Massicotte, Victoriaville, Québec
+Volunteer kitchen assistant. Meal and dessert preparation.

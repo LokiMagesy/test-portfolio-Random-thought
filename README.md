@@ -2,6 +2,8 @@
 
 ### Test
 
+[Three Sage Monkey](/ThreeSageMonkey)
+
 ### My First CV from school day
 
 ### Hoi Lun (Simon) Cheng

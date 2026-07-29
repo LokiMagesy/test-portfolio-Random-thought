@@ -3,6 +3,7 @@
 ### Test
 
 [Three Sage Monkey](/ThreeSageMonkey.md)
+[Favorite Thing](/FavoriteThing.md)
 
 ### My First CV from school day
 
@@ -115,50 +116,5 @@ Home for Children with Disabilities
 Volunteer kitchen assistant. Meal and dessert preparation.
 
 
-# Current Series Following
-- Madan no Ichi (Manga)
-- Muderbot (Tv Show)
-- Nebula Civilization (Manhaw)
-
-# Favorite 
-- Hack G.U. (Game)
-- Fallout New Vegas (Game)
-- Detective Conan (Series, Anime and Manga)
-- World Trigger (Only Manga)
-- Project Hail Mary (Movie, I should start reading the book)
-- Aporactry Diary (Anime, Manga, Novel)
-- Ghost hunt (Anime and Manga)
-- Sushi, hamburger, Ramen/Noodle (Food)
-- Japanse Eel Stuff (Food)
-- Persona Series (Game)
-- The King's Avatar (Eastern Novel)
-- Soul Land Series (Novel)
-- Re:Monster (Novel)
-- Overlord
-- Young Justice & Teen Titan (Cartoon)
-- Tenchi Muyou!
-- legendary moonlight sculptor (Novel)
-
-# Like
-- Xenoblade chronocile 2 (Game)
-- Mechanical Budddy Universe (Manga)
-- Disgaea Series (Game)
-- The Martin (Movie, I should start reading the book)
-- Hockey Team: Boston (For the Troll as living in montreal)
-- Green Tea/Macha flavor stuff (Food)
-- 1984 (book) school homework that fake, still like the book;
-- Jackie Chan Movie (drunken master)
-- Swallowed Star (Eastern Novel)
-- Tensei Shitara Ken Deshita (Novel)
-- Deth March Kara Hajimaru Isekai Kyousoukyoku (Novel)
-- Let Me Game in PEace (Novel)
-- Fata Shot (Novel)
-- My House of Horrors (Novel)
-
-
-# Dislike
-- Weird dislike and Like of Dog
-
-# Hate
 
 

@@ -2,7 +2,7 @@
 
 ### Test
 
-[Three Sage Monkey](/ThreeSageMonkey)
+[Three Sage Monkey](/ThreeSageMonkey.md)
 
 ### My First CV from school day
 

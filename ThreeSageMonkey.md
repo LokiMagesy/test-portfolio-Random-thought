@@ -1,5 +1,0 @@
-[I See No Evil](/ISeeNoEvil.md)
-[I Hear No Evil](/IHearNoEvil.md)
-[I Speak No Evil](/ISpearkNoEvil.md)
-[Do no Evil](/DoNoEvil.md)
-[I Think No Evil](/IThinkNoEvil.md)

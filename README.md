@@ -1,4 +1,5 @@
 # portfolio
+[image](/img/Inu%20Soldier%20Beagle%20Colorr.png)
 
 ### Test
 
@@ -16,8 +17,8 @@ Courriel : hoiluncheng@hotmail.com
 
 Compétences
 ⦁	Langues : français, anglais et connaissances de base en Chinois
-⦁	Sondage (Semi automatique) et Montage
-⦁	Logicie : Word, Power Point, Google Doc
+⦁	(course teenage year) Sondage (Semi automatique) et Montage
+⦁	Logicie : Word, Power Point, Google Doc (LOL)
 ⦁	Formation : École Entreprise Prince-Dvly (Secondaire)
 
 ## EXPÉRIENCES DE TRAVAIL 

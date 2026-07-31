@@ -1,4 +1,5 @@
 [I Think No Evil Part 2](/IThinkNoEvil2.md)
+
 **The False Addiction**
 
 People said I was addicted to smoking. They were wrong. The cigarettes were never the point.

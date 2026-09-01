@@ -1,0 +1,33 @@
++ [10 nen goshi no HikiNiito o Yamete Gaishutsushitara Jitaku goto Isekai ni Ten’ishiteta - Novel Updates](https://www.novelupdates.com/series/10-nen-goshi-no-hikiniito-o-yamete-gaishutsushitara-jitaku-goto-isekai-ni-tenishiteta/)
++ [Abyss Domination - Novel Updates](https://www.novelupdates.com/series/abyss-domination/)
++ [Arafoo Kenja no Isekai Seikatsu Nikki - Novel Updates](https://www.novelupdates.com/series/arafoo-kenja-no-isekai-seikatsu-nikki/)
++ [Crossing to the Future, it’s Not Easy to Be a Man - Novel Updates](https://www.novelupdates.com/series/crossing-to-the-future-its-not-easy-to-be-a-man/)
++ [Doll Dungeon - Novel Updates](https://www.novelupdates.com/series/doll-dungeon/)
++ [Dungeons Appeared in Real Life - Novel Updates](https://www.novelupdates.com/series/dungeons-appeared-in-real-life/)
++ [Even I Have Become a Beautiful Girl, but I Was Just Playing as a Net-game Addition - Novel Updates](https://www.novelupdates.com/series/even-i-have-become-a-beautiful-girl-but-i-was-just-playing-as-a-net-game-addition/?pg=2)
++ [I Woke Up Piloting the Strongest Starship, so I Became a Space Mercenary - Novel Updates](https://www.novelupdates.com/series/i-woke-up-piloting-the-strongest-starship-so-i-became-a-space-mercenary/)
++ [M E M O R I Z E - Novel Updates](https://www.novelupdates.com/series/m-e-m-o-r-i-z-e/?pg=7)
++ [Master of Untold Daos - Novel Updates](https://www.novelupdates.com/series/master-of-untold-daos/?pg=12)
+
+[Tags Automatons - Novel Updates](https://www.novelupdates.com/stag/automatons/)
++ [The Legendary Mechanic - Novel Updates](https://www.novelupdates.com/series/the-legendary-mechanic/)
++ [The White Cat That Swore Vengeance Was Just Lazing on the Dragon King’s Lap - Novel Updates](https://www.novelupdates.com/series/the-white-cat-that-swore-vengeance-was-just-lazing-on-the-dragon-kings-lap/)
+
+[]()
++ [Overlord (LN) - Novel Updates](https://www.novelupdates.com/series/overlord/?pg=2)
++ [Chaotic Sword God - Novel Updates](https://www.novelupdates.com/series/chaotic-sword-god/)
+
+[WWM – The world is overflowing with monster, I’m taking a liking to this life](https://www.novelupdates.com/series/the-world-is-overflowing-with-monster-im-taking-a-liking-to-this-life/)
+[[WWM]]
+
+[]()
+[]()
+[]()
+[]()
+[]()
+[]()
+[]()
+[]()
+[]()
+[]()
+[]()
